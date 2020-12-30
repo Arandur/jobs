@@ -1,7 +1,7 @@
 # Siobhán Sterrett
-she/her
-siobhan.sterrett@gmail.com
-917.938.4820
+- she/her
+- siobhan.sterrett@gmail.com
+- 917.938.4820
 
 ## Mission Statement
 
